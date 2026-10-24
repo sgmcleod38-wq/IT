@@ -1,1 +1,2 @@
+[Information_Technology_Foundations_CTI_110_Fall_2026.pdf](https://github.com/user-attachments/files/33909078/Information_Technology_Foundations_CTI_110_Fall_2026.pdf)
 
